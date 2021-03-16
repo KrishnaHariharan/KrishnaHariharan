@@ -1,4 +1,4 @@
-Mechatronics Engineer with area of research interest in Control System & Robotics. Curiosity pushed me to take steps to start learning digital technologies such as Artificial Intelligence - Machine Learning, Deep Learning.
+Mechatronics Engineer  research interest in Control System & Robotics. Curiosity pushed me to take steps to start learning digital technologies such as Artificial Intelligence - Machine Learning, Deep Learning.
 
 Currently, a Post Graduate student with specialization in Mechatronics at Vellore Institute of Technology, Chennai.
 
